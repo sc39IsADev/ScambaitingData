@@ -571,7 +571,12 @@ Date: Sat, Nov 21, 2020 at 1:48 PM
 To: Sc39 IsADev <sc39isadeveloper@gmail.com>
 
 
-I don't even know who you're but I'm not interested.  If you want to recover your lost money it's up to you because i wonder if you're these strict, why will those company scammed you? Ask yourself this question very well.You don't anger someone that is trying to help you get your lost back okay. All clients I've help none have gave me a tough time like this, I don't explain myself to clients or send my ID to client and I don't even know why I'm doing all this to you and still talking nonsense with me.Please you can contact another agent for help because if this continues I'll drop your case immediately. 
+I don't even know who you're but I'm not interested.  
+If you want to recover your lost money it's up to you because i wonder if you're these strict, why will those company scammed you?  
+Ask yourself this question very well.  
+You don't anger someone that is trying to help you get your lost back okay.  
+All clients I've help none have gave me a tough time like this, I don't explain myself to clients or send my ID to client and I don't even know why I'm doing all this to you and still talking nonsense with me.  
+Please you can contact another agent for help because if this continues I'll drop your case immediately.  
 
 ----------
 From: Sc39 IsADev <sc39isadeveloper@gmail.com>
