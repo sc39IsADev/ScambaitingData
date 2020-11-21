@@ -579,7 +579,7 @@ Date: Sat, Nov 21, 2020 at 1:50 PM
 To: Hana Zonova <agenthanazonova@gmail.com>
 
 
-Well, you can say goodbye to https://bitcoinbinaryrecovery.com/ then.  
+Well, you can say goodbye to https://bitcoinbinaryrecovery.com/.  
 I already reported it, so it should be down soon.  
 Also, I'm going to report your bitcoin address.  
 Don't mess with developers and bitcoin enthusiasts like me.  
