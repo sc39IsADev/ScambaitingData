@@ -92,7 +92,9 @@ Date: Wed, Nov 18, 2020 at 8:57 PM
 To: Sc39 IsADev <sc39isadeveloper@gmail.com>
 
 
-I can help you get your refund back but as you know I don't charge for my services but after the recovery of your lost funds you can pay me homage. First what you have to settle now is the trade lawyer upfront fee which will cost you $200Thereafter I'll get the documents for the lawyer to start your recovery and it will take two days to get your money back. 
+I can help you get your refund back but as you know I don't charge for my services but after the recovery of your lost funds you can pay me homage.  
+First what you have to settle now is the trade lawyer upfront fee which will cost you $200  
+Thereafter I'll get the documents for the lawyer to start your recovery and it will take two days to get your money back.   
 
 ----------
 From: Sc39 IsADev <sc39isadeveloper@gmail.com>
